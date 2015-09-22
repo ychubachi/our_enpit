@@ -1,2 +1,4 @@
 # our_enpit
-aa
+Edited by NG.
+hiro yoshioka
+Kentaryo Ryu
